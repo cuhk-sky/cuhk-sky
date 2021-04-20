@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+### I like Vtuber
+
+### I like Okayu 🐱 🍙 💜
 <!--
 **cuhk-sky/cuhk-sky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
